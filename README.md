@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm MANISH KUMAR MISHRA
-**SOFTWARE DEVELOPER || FAST API**
+**SOFTWARE DEVELOPER || MERN STACK DEVELOPER**
 
 Email Me 👉 ✉️ **mishra.manish4763@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
